@@ -1,1 +1,1 @@
-pgp
+https://www.premiergamingpodcast.com
