@@ -1,1 +1,1 @@
-https://www.premiergamingpodcast.com
+www.premiergamingpodcast.com
